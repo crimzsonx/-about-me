@@ -6,6 +6,6 @@ fandomz im n. ★  creepypasta, south park, epic the musical, sally face, fnaf, 
 
 I hooe thats all i know,, i think.  my comfort characters!! ★  . dust sans. creepy susie .  Jeff the killer. 
 
-My hobbies!  ★ Drawing, painting, reading, mostly sleeping, art trades. 
+My hobbies!  ★ Drawing, painting, reading, mostly sleeping, art trades.  i mostly love gore shit 
 
 
